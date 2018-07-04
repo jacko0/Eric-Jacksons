@@ -3,7 +3,7 @@
 ![Jacksons Logo](EricJacksons-logo-transparent.png)
 Format: ![Alt Text](url)
 
-https://scontent-lht6-1.xx.fbcdn.net/v/t31.0-8/24955588_1597480933630876_5797504337615091581_o.jpg?_nc_cat=0&oh=5c9ad191f0b766d47552dc1bdd626de5&oe=5BE40158
+<img width="1680" alt="screen shot 2018-06-30 at 22 51 14" src="https://user-images.githubusercontent.com/10011508/42259881-3382d9ac-7f5a-11e8-947a-ac0b1f9550cd.png">
 
 You can use the [editor on GitHub](https://github.com/jacko0/test/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
