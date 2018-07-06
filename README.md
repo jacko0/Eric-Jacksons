@@ -12,7 +12,7 @@ Eric Jacksons [Yellow Pages](https://www.yell.com/biz/eric-jackson-s-ltd-waterlo
 
 
 
-
+![Jackson_team](EJacksons.jpg)
 
 
 
