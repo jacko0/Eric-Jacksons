@@ -1,10 +1,12 @@
 ## Welcome jackos pages
 
 ![Jacksons Logo](EricJacksons-logo-transparent.png)
-Format: ![Alt Text](url)
 
 
 
+Eric Jackson opened his Waterlooville shop in 1928, now in the third generation the family is still running the business. Peter and Jason are part of the team focusing on domestic and commercial electrical works.
+
+Eric Jacksons Facebook page 
 You can use the [editor on GitHub](https://github.com/jacko0/test/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
