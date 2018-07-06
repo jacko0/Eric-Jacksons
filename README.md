@@ -15,5 +15,7 @@ Eric Jacksons on [Yellow Pages](https://www.yell.com/biz/eric-jackson-s-ltd-wate
 
 ![Jackson_team](EJacksons.jpg)
 
-Eric Jackson opened his electrical shop in 1928, now in the third generation the family is still running the business. Peter, Janet, Michael and Jason are the team focusing on domestic and commercial electrical works.
+Eric Jackson opened his electrical shop in 1928, now in the third generation the family is still running the business.
+
+Peter, Janet, Michael and Jason are the team focusing on domestic and commercial electrical works.
 
