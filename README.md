@@ -1,7 +1,7 @@
 ![Jacksons Logo](EricJacksons-logo-transparent.png)
 
 
-236 London Road, Waterlooville, Hants.
+236 London Road, Waterlooville, Hants PO7 7HB.
 
 Phone 02392 262020
 
