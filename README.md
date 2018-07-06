@@ -4,7 +4,7 @@
 
 Eric Jackson opened his electrical shop in 1928, now in the third generation the family is still running the business. Peter and Jason are part of the team focusing on domestic and commercial electrical works.
 
-Eric Jacksons [Facebook page](https://www.facebook.com/ericjacksons/) 
+Eric Jacksons [Facebook page](https://www.facebook.com/ericjacksons/) Use Facebook chat to contact us
 
 Eric Jacksons [Yellow Pages](https://www.yell.com/biz/eric-jackson-s-ltd-waterlooville-2660719/)
 
