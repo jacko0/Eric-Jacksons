@@ -3,7 +3,7 @@
 
 236 London Road, Waterlooville, Hants PO7 7HB.
 
-Phone 02392 262020
+Phone 02392 262020.               Open 9am to 5pm Monday to Friday, excluding Wednesdays.
 
 
 Eric Jackson opened his electrical shop in 1928, now in the third generation the family is still running the business. Peter, Janet, Michael and Jason are the team focusing on domestic and commercial electrical works.
