@@ -2,7 +2,7 @@
 
 
 
-Eric Jackson opened his Waterlooville shop in 1928, now in the third generation the family is still running the business. Peter and Jason are part of the team focusing on domestic and commercial electrical works.
+Eric Jackson opened his electrical shop in 1928, now in the third generation the family is still running the business. Peter and Jason are part of the team focusing on domestic and commercial electrical works.
 
 Eric Jacksons [Facebook page](https://www.facebook.com/ericjacksons/) 
 
