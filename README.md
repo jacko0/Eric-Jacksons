@@ -1,5 +1,3 @@
-﻿## Welcome jackos pages
-
 ![Jacksons Logo](EricJacksons-logo-transparent.png)
 
 
