@@ -3,8 +3,9 @@
 
 236 London Road, Waterlooville, Hants PO7 7HB.
 
-Phone 02392 262020.&nbsp;&nbsp;&nbsp;Open 9am to 5pm Monday to Friday, excluding Wednesdays.
+Open 9am to 5pm Monday to Friday, excluding Wednesdays.
 
+Phone 02392 262020.&nbsp;email sales@ericjacksons.co.uk
 
 - Eric Jacksons [Facebook page](https://www.facebook.com/ericjacksons/)&nbsp;&nbsp;Use Facebook chat to contact us
 
