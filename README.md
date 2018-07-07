@@ -7,7 +7,7 @@ Open 9am to 5pm Monday to Friday, excluding Wednesdays.
 
 Phone 02392 262020
 
-email sales@ericjacksons.co.uk
+email <sales@ericjacksons.co.uk>
 
 We're on [Facebook](https://www.facebook.com/ericjacksons/) and [Yellow Pages](https://www.yell.com/biz/eric-jackson-s-ltd-waterlooville-2660719/) 
 
