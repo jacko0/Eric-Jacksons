@@ -3,7 +3,7 @@
 
 236 London Road, Waterlooville, Hants PO7 7HB.
 
-Open 9am to 5pm Monday to Friday, excluding Wednesdays.
+Open 9am to 5pm, Monday to Friday, excluding Wednesdays.
 
 Phone 02392 262020
 
