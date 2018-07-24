@@ -20,4 +20,3 @@ Eric Jackson opened his electrical shop in 1928, now in the third generation the
 Peter, Janet, Michael and Jason are the team focusing on domestic and commercial electrical works.
 
 
-[Our history](https://github.com/jacko0/Eric-Jacksons/blob/master/history.html)
