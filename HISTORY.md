@@ -1,4 +1,5 @@
 OUR HISTORY
+
 In 1928 Eric Jackson, his wife Marjorie, and his parents wanted to move out of central Portsmouth for a life in the country. Behind Portsdown Hill they found the quiet country backwater of Waterlooville. Back then, in the centre of town a row of houses known locally as “Sidney Villas” had a vacant property for sale. The family pooled their money and bought the house, a few weeks later they moved in, next on the list was for Eric to find a job.
 
 At the time, the new invention of radio broadcasting was starting to become widespread and a radio receiver needed a power source. Not many people had mains electricity in the home, so to power a radio you needed an “accumulator”. This is very similar to a car battery from today, albeit 3 – 6 volts and not 12. Similarly to a battery, an accumulator needs to be recharged, so Eric came up with a business plan to collect, recharge and deliver these as a service.
