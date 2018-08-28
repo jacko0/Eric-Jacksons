@@ -1,5 +1,6 @@
 ![Jacksons Logo](EricJacksons-logo-transparent.png)
 
+Electrical retailer and contractor
 
 236 London Road, Waterlooville, Hants. PO7 7HB.
 
