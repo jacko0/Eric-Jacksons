@@ -8,9 +8,7 @@ As more and more people needed electricity in the home, in addition to his new a
 
 During the second World War a German fire bomb was dropped on the shop, it smashed through the roof and started a fire on the ground floor. Luckily, Eric was a local fireman and was able to put out the flames before the fire took hold.
 
-At some point, Eric converted the lounge of No.4 Sidney Villas into the Eric Jacksons Ltd shop seen below.
-
-However, over the years the original building structure has been modified and extended. But if you look carefully, you can still make out the villa buildings to the left of the shop (up to Victoria Road).
+At some point, Eric converted the lounge of No.4 Sidney Villas into the Eric Jacksons Ltd shop, however, over the years the original building structure has been modified and extended. But if you look carefully, you can still make out the villa buildings to the left of the shop (up to Victoria Road).
 
 All was going well, and after World War 2, his son Michael was born and started working in the shop aged 15. In 1969 he married Janet and continued to grow Eric Jacksons Ltd. In 1987, Eric sadly passed away leaving Michael and Janet to steer the business through some tough economic times.
 
