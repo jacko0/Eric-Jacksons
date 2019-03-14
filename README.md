@@ -4,7 +4,11 @@ Electrical retailer and contractor
 
 236 London Road, Waterlooville, Hants. PO7 7HB.
 
-The shop is open 9am to 5pm, Monday to Friday, excluding Wednesdays.
+**From the 1st of April 2019 Eric Jacksons Ltd will be focusing on domestic electrical contracting.**
+
+**The shop opening hours will be: Mondays and Fridays 9am to 5pm.**
+**Please contact us as normal with phone, Facebook or email**
+
 
 Phone 02392 262020
 
