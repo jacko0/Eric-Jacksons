@@ -7,7 +7,7 @@ Electrical retailer and contractor
 **From the 1st of April 2019 Eric Jacksons Ltd will be focusing on domestic electrical contracting.**
 
 **The shop opening hours: Mondays and Fridays 9am to 5pm.**
-**Please contact us as normal with phone, Facebook or email**
+**Please contact us as normal by Phone, Facebook or Email.**
 
 
 Phone 02392 262020
