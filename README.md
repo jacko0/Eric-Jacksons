@@ -8,6 +8,8 @@ Electrical Retailer and Contractor
 
 **The shop opening hours: Mondays and Fridays only, 9am to 5pm.**
 
+**While the shop maybe closed, we're out working hard!**
+
 **Please contact us as normal by Phone, Facebook or Email.**
 
 
