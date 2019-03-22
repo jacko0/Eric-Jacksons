@@ -1,13 +1,8 @@
-![Jacksons Logo](EricJacksons-logo-transparent.png)
-
-                                        Electrical Retailer and Contractor
-
-                                  236 London Road, Waterlooville, Hants. PO7 7HB.
-
-
 ![Jacksons Logo](jacksons_shoptimes.png)
 
 email <sales@ericjacksons.co.uk>
+
+Telephone: 023 92 262020
 
 More information, reviews and live chat, find us on [Facebook](https://www.facebook.com/ericjacksons/) or see us on [Yellow Pages](https://www.yell.com/biz/eric-jackson-s-ltd-waterlooville-2660719/) 
 
