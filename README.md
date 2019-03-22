@@ -7,7 +7,7 @@ Electrical Retailer and Contractor
 **To move with the times, Eric Jacksons Ltd will be focusing on electrical contracting, therefore the shop will now be open:**
 **From the 1st of April 2019 Eric Jacksons Ltd will be focusing on electrical contracting.**
 
--> The shop opening hours: Mondays and Fridays only, 9am to 5pm. <-
+**The shop opening hours: Mondays and Fridays only, 9am to 5pm.**
 
 **While the shop maybe closed, we're out working hard!**
 
