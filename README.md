@@ -1,4 +1,4 @@
-![Jacksons Logo](jacksons_shoptimes.png)
+![Jacksons Logo](jacksons_shoptimes_2.png)
 
 email <sales@ericjacksons.co.uk>
 
