@@ -5,7 +5,7 @@
                                   236 London Road, Waterlooville, Hants. PO7 7HB.
 
 
-![Jacksons Logo](Jacksons_shop_times.png)
+![Jacksons Logo](jacksons_shoptimes.png)
 
 email <sales@ericjacksons.co.uk>
 
