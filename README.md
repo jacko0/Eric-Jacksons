@@ -7,8 +7,6 @@
 
 ![Jacksons Logo](Jacksons_shop_times.png)
 
-Phone 02392 262020
-
 email <sales@ericjacksons.co.uk>
 
 More information, reviews and live chat, find us on [Facebook](https://www.facebook.com/ericjacksons/) or see us on [Yellow Pages](https://www.yell.com/biz/eric-jackson-s-ltd-waterlooville-2660719/) 
