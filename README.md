@@ -2,7 +2,7 @@
 
 email <sales@ericjacksons.co.uk>
 
-The shop is open Monday and Friday, 9am to 5pm only.
+The shop is open Monday and Friday only, 9am to 5pm.
 
 Telephone: 023 92 262020
 
