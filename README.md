@@ -2,7 +2,9 @@
 
 email <sales@ericjacksons.co.uk>
 
-The shop is open Monday and Friday only, 9am to 5pm.
+Due to thw Corona Virus The shop is currently closed until further notice.
+
+We are operating an emergency callout service. Please contact us for more information.
 
 Telephone: 023 92 262020
 
