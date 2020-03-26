@@ -2,7 +2,7 @@
 
 email <sales@ericjacksons.co.uk>
 
-Due to thw Corona Virus The shop is currently closed until further notice.
+Due to thw Corona Virus the shop is currently closed until further notice.
 
 We are operating an emergency callout service. Please contact us for more information.
 
