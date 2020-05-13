@@ -1,12 +1,15 @@
 ![Jacksons Logo2](EricJacksons-logo-transparent.png)
 
-email <sales@ericjacksons.co.uk>
 
-Due to the Corona Virus the shop is closed until further notice.
 
-We are operating an emergency callout service. Please contact us for more information.
+To move with the times, Eric Jacksons Ltd will be focusing on electrical contracting and the shop is now our office.
+
+Same local family, same quality business, trusted since 1928.
+
+Eric Jacksons Ltd have been trading in Waterlooville since 1928. We are the oldest established business in the area.
 
 Telephone: 023 92 262020
+email <sales@ericjacksons.co.uk>
 
 More information, reviews and live chat, find us on [Facebook](https://www.facebook.com/ericjacksons/) or see us on [Yellow Pages](https://www.yell.com/biz/eric-jackson-s-ltd-waterlooville-2660719/) 
 
