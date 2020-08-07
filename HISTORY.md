@@ -16,6 +16,8 @@ Michael’s youngest son Peter joined Eric Jacksons in 2001; he became the third
 
 Eric Jacksons Ltd are now the oldest surviving retailer in Waterlooville, to this day it’s still operating from the original premises Eric bought way back in 1928.
 
+In July 2020 Michael and Janet retired, leaving Peter and Jason to focus their expert skills on electrical installations. This means the shop closed its doors one last time and has been renovated for use as the Eric Jacksons electrical office.
+
 Since Eric started, everyone is qualified to the latest standards ensuring safety and high quality throughout all aspects of electrical testing and installations.
 The company joined the National Electrical Inspection Council (NIC EIC) in May 1986, and to this day this ensures all aspects of the electrical regulations are adhered to and quality checked yearly, by an inspecting engineer.
 
