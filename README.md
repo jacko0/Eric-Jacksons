@@ -8,16 +8,10 @@ Since 1928, we have continually evolved to keep offering quality electrical serv
 
 Starting in 2026, our premises (that was once our home and shop) has been leased to another business.
 
-Janet and Mike have also retired, but rest assured, nothing changes for you: same local family, same trusted quality, same expert team delivering a reliable service since 1928.
-
 Telephone: 023 92 262020
 
 email <sales@ericjacksons.co.uk>
 
 Check out our reviews on [Google](https://maps.app.goo.gl/GWhjW7Be126enRZe7/) , [Facebook](https://www.facebook.com/ericjacksons/) and [Yellow Pages](https://www.yell.com/biz/eric-jackson-s-ltd-waterlooville-2660719/) 
-
-Eric Jackson opened his electrical shop in 1928, now in the third generation the family is still running the business.
-
-Peter and Jason are now the team focusing on domestic and commercial electrical works.
 
 [Our long history](HISTORY.md)
