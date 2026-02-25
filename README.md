@@ -16,8 +16,6 @@ email <sales@ericjacksons.co.uk>
 
 Check out our reviews on [Google](https://maps.app.goo.gl/GWhjW7Be126enRZe7/) , [Facebook](https://www.facebook.com/ericjacksons/) and [Yellow Pages](https://www.yell.com/biz/eric-jackson-s-ltd-waterlooville-2660719/) 
 
-![Jackson_team](EJacksons.jpg)
-
 Eric Jackson opened his electrical shop in 1928, now in the third generation the family is still running the business.
 
 Peter and Jason are now the team focusing on domestic and commercial electrical works.
